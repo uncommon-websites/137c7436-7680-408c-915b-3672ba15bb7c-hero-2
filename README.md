@@ -1,0 +1,2 @@
+# 137c7436-7680-408c-915b-3672ba15bb7c-hero-2
+Hero section variant 2 for 137c7436-7680-408c-915b-3672ba15bb7c
